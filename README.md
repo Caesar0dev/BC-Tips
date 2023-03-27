@@ -1,2 +1,1 @@
-# BC-Tips
-wonderful Tip in BC game
+You can use this program to get $100 every time your account's VIP level goes up in BC Games.
